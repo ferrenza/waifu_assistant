@@ -7,7 +7,7 @@ Feature : 10 Character, Support Voice<br>
 (+)saat kamu diam dia akan mengajakmu bermain :v<br>
 (+)Jangan Kasar Dia Akan Marah nanti >.<
 
-credit? idk saya boleh nemu juga hehe
+credit? idk saya boleh nemu juga hehe apapun itu saya tetap menghargai karya anda !<br>
 encrypted untuk menghargai creator !
 
 ![alt text](https://raw.githubusercontent.com/ferrenza/waifu_assistant/main/waifu.PNG)
